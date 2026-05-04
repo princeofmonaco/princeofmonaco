@@ -1,4 +1,4 @@
-<img width="1036" height="581" alt="New fav photo _3" src="https://github.com/user-attachments/assets/57a9225d-94d6-45f5-9c4d-5e59f53a58b3" />
+<img width="1036" height="581" alt="xam (@lucidsboy) on X" src="https://github.com/user-attachments/assets/48d20a09-e6d7-475a-9495-b85a88175aba" />
 
   
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Wins.&style=for-the-badge)
@@ -6,11 +6,11 @@
   ㅤㅤㅤㅤㅤ
                    ㅤ^_^   
 
-                   ✦ : DO NOT CONTINOUSLY FOLLOW IF I HAVE MOVED AWAY FROM YOU. IT MAKES ME UNCOMFY. I DON'T GIVE A FUCK IF YOU ' RECOGNIZE ME. '
+                   i really like franco colapinto and oscar piastri
 
 ✦ : Multifandom ; F1, DW, SFAWTDE / DAWTDE , DC. ( Sometimes. ) [ DW, F1 AND SFAWTDE are my biggest fixations. ]
 
-✦ : F1 drivers i support : Kimi Antonelli, Liam Lawson, Oscar Piastri, George Russell, Isack Hadjar And Arvid Lindblad + Lewis Hamilton.
+✦ : F1 drivers i support : Kimi Antonelli, Franco Colapinto, Oscar Piastri, George Russell, Isack Hadjar And Arvid Lindblad + Lewis Hamilton.
 
 ✦ : Most of the time i can come off as rude. I have occasional mood swings that are bad at times.
 
