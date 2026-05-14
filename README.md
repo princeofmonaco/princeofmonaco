@@ -10,3 +10,7 @@
 
 
   MY SKIN IM USUALLY IN AT DOCKS [ TRANSFORMERS : RISE OF THE BEASTS OPTIMUS ] ^
+
+<img width="208" height="220" alt="pony-town-ᴅʀᴀɢ ᴘᴀᴛʜ - ᴛØᴘ ✦ ᴛʟᴋ-stand-padded-4x" src="https://github.com/user-attachments/assets/869417eb-ca89-4075-8b5c-76e18292a231" />
+
+AND OR MY MEGATRON SKIN. [ THE LAST KNIGHT ] ^
