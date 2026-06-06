@@ -36,7 +36,7 @@
 
 &ensp;&ensp;&ensp;
 
- [GUNS.LOL](https://guns.lol/lestappen) 
+ [GUNS.LOL](https://guns.lol/lestappen) / [2ND GUNS.LOL](https://guns.lol/lestappenn)
 
 
  &ensp;&ensp;&ensp;
