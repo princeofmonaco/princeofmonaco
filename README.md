@@ -1,8 +1,7 @@
-## The Prince Of Monaco.
+## FEVER DREAM > ALEX WARREN
 
-
-<img width="736" height="414" alt="alexandra saint mleux   charles leclerc" src="https://github.com/user-attachments/assets/d71ac509-9b6d-43a8-96ac-9c521403bfc9" />
-i get rehyperfixated on some of my top drivers so i change this github alot
+<img width="735" height="481" alt="Kimi Antonelli" src="https://github.com/user-attachments/assets/81a39a32-a5fe-4932-82ac-a0d605ddc083" />
+i get rehyperfixated on some of my top drivers so i change this github alot, im not a larper i just get fixated on drivers way too easy
 
 
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=F1-Drivers&style=for-the-badge)
@@ -12,9 +11,9 @@ i get rehyperfixated on some of my top drivers so i change this github alot
 
 
 
- &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@CL16)
+ &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRONOUNS.CC](https://pronouns.cc/@AKA12)
 
-&ensp;&ensp;&ensp;[GUNS.LOL](https://guns.lol/princeofmonaco)
+&ensp;&ensp;&ensp;[GUNS.LOL](https://guns.lol/kimiantonelli1)
 
 &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;[PRNS.PAGE](https://en.pronouns.page/@LH44)  / [ATABOOK](https://mv3.atabook.org)
 
@@ -22,5 +21,6 @@ i get rehyperfixated on some of my top drivers so i change this github alot
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&cover_image=true&theme=natemoo-re&show_offline=true&background_color=6b0000&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8q1z4yy1t2lxbkpqd2zt5fyur&redirect=true)
 
 
-<img width="734" height="245" alt="download (50)" src="https://github.com/user-attachments/assets/b2c3622e-db5d-49d8-a6b0-8bf4f9fc5ef6" />
+<img width="456" height="215" alt="max verstappen   kimi antonelli, 2026 testing at the bahrain international circuit" src="https://github.com/user-attachments/assets/cafa2bdc-63f0-415d-a3f5-a52c1d1a9995" />
+
 
